@@ -1,1 +1,1 @@
-Replace this with a list of your favorite things.
+Download the perfect desktop computer pictures.
